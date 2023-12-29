@@ -1,1 +1,1 @@
-# một vài cái code linh tinh =)
+# một vài cái code ăn cắp đc =)
