@@ -1,1 +1,1 @@
-# một vài cái code ăn cắp đc =)
+# code ăn cắp =)
